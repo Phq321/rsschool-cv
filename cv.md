@@ -1,7 +1,7 @@
-# Volodymyr Dmytriiev
+# I have to study so hard
 
-## I want to become a web developer
+## I'm trying to be better version of myself
 
-### I'm trying to be better version of myself
+### I want to become a web developer
 
-### I have to study so hard
+### Volodymyr Dmytriiev
