@@ -1,1 +1,1 @@
-# rsschool-cv
+# https://Phq321.github.io/rsschool-cv/
